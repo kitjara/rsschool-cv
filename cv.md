@@ -2,6 +2,7 @@ Usenko Mykola
 =====
 Contact information
 -----
+
 **Phone:** +380 67 683 5 863  
 **E-mail:** usenko.nikolay@gmail.com  
 [LinkedIn](https://www.linkedin.com/in/mykola-usenko-4565945a/)  
