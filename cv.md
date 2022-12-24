@@ -114,7 +114,7 @@ Education
 -----
 Master’s Degree  
 September 2000 – June 2005  
-National University of Food Technologies, Kyiv, Ukraine.  
+**National University of Food Technologies**, Kyiv, Ukraine.  
 Faculty: Energetic  
 Specialty: Cooling machines and equipment  
 
