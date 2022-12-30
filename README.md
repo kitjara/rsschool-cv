@@ -1,3 +1,3 @@
 # rsschool-cv
 
-https://kitjara.github.io/rsschool-cv/cv
+https://kitjara.github.io/rsschool-cv/
